@@ -1,5 +1,7 @@
 Privacy Policy
+
 Last Updated: September 14, 2024
+
 Welcome to AI Friends! We are committed to protecting your personal information and your privacy. This Privacy Policy explains how we collect, use, disclose, and protect information that you provide to us while using our services.
 
 Information Collection and Use
